@@ -1,1 +1,1 @@
-# xScoobydoo.github.io
+# scoobyfy.github.io
